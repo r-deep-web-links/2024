@@ -1,4 +1,4 @@
-# Dark web links 2024
+# Deep web links 2024
 
 ⚠️ The following TOR Links work only in Tor Browser. Download it from: https://www.torproject.org/download/
 
